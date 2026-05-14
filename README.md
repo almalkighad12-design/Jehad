@@ -35,13 +35,7 @@ https://modsfire.com/CazKs25v6J2J8nA ربع
 https://www.beamng.com/resources/road-grip-editor.15350/ مود خشونه الكفرات
 https://modsfire.com/9KQ5J8nnqva8U1D اكسنت17
 https://modsfire.com/7GYC331M2kV9Msi لاند133
-https://www.modland.net/download/311581 النترا19
-
-Modsbase.com - elantra.zip النترا15
-
-Modsfire.com - Toyota Land Cruiser j70.zip شاص 
-
-Modsfire.com - bmw-m4-2015-2018-high-class.zip  بي ام 
+ 
 https://www.beamng.com/resources/mount-
 danger.13490/download?version=54732 ماب جبال
 https://modsfire.com/m2p80UOLvy39Mb8 ماب ثلج
@@ -51,3 +45,4 @@ https://www.beamng.com/resources/mount-danger.13490/download?version=54732
 https://modsfire.com/cFCRrevIWqz96HQ هايلوكس قديم
 
 https://sharemods.com/iuazehb8e3lq/Lexus_LX570.zip.html لكزس
+http://Modsfire.com شاص
