@@ -10,3 +10,4 @@ https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
 https://www.modland.net/download/496864
 https://modsfire.com/GxG4P8kEo747r9q
 https://modsfire.com/6tyR9hHLpMxZs0Do. سطحة
+https://modsfire.com/GxG4P8kEo747r9q ماب توكسك معدل
