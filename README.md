@@ -11,3 +11,5 @@ https://www.modland.net/download/496864
 https://modsfire.com/GxG4P8kEo747r9q
 https://modsfire.com/6tyR9hHLpMxZs0Do. سطحة
 https://modsfire.com/GxG4P8kEo747r9q ماب توكسك معدل
+https://modsfire.com/x0pFzyU8nlU5vk9 توكسك 
+https://modsfire.com/yn28usVMcPqaxTt ماب مستودعات
