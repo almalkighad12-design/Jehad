@@ -10,8 +10,7 @@ https://modsfire.com/tFdTVS1Jo185Bcf لكزس صغيرة
 https://modsfire.com/n62FWx47QywQsbI اكسنت25
 https://modsfire.com/Agy84NWh6kWf9kS كامري 
 https://modsfire.com/8Llq7dNg7em7Nad. لاند25
-https://modsfire.com/AB1y9dZ52dw42vp جنيسيس
-https://modsfire.com/4ytFGm1b19IjtOR. ربع 25
+
 https://www.mediafire.com/file/1eegsfmm3ja8a
 https://modsfire.com/V27g94s7C8aVFRB تورس
 https://modsfire.com/MP5ra8F1S737QdI لكزس
