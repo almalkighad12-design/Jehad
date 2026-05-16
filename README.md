@@ -20,6 +20,7 @@ https://sharemods.com/iuazehb8e3lq/Lexus_LX570.zip.html لكزس
 https://www.modland.net/download/496864 ماب تطعيس
 https://modsfire.com/V2sQw4hZPikjES7 اكورد17
 https://www.modland.net/beamng.drive-mods/cars/nissan-ddsn-datsun.html ددسن
+
 https://modsfire.com/YkgW2h1YomEBe71 صيني
 https://modsfire.com/UB692I7KcYJy947 كي ايت 23
 https://modsfire.com/svhinihSG5xq5E8 تورس 13
@@ -29,3 +30,8 @@ https://modsfire.com/vtc34hRg01w72c6 لاند2
 
 https://modsfire.com/sqgAkFziU7Z318F ماب الطوقي
 
+https://modsfire.com/fjlZBhL7btTJKC4 كوريلا
+https://modsfire.com/20py72ibsVDoJqQ كابرس
+https://modsfire.com/MMcK3AE09r2ZXuD كروز
+https://www.modland.net/download/400604 i10
+https://modsfire.com/sqgAkFziU7Z318F ماب هجوله
