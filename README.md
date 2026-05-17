@@ -35,3 +35,4 @@ https://modsfire.com/20py72ibsVDoJqQ كابرس
 https://modsfire.com/MMcK3AE09r2ZXuD كروز
 https://www.modland.net/download/400604 i10
 https://modsfire.com/2Ehroo4r3TLsn0c يارس
+https://modsfire.com/PC32gB5mhxeArXy كيا20
