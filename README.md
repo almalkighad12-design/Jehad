@@ -36,3 +36,5 @@ https://modsfire.com/MMcK3AE09r2ZXuD كروز
 https://www.modland.net/download/400604 i10
 https://modsfire.com/2Ehroo4r3TLsn0c يارس
 https://modsfire.com/PC32gB5mhxeArXy كيا20
+https://www.mediafire.com/file/7aca0adaf0xwoq3/Almutairi_Land_LC70.zip/file شاص
+https://www.mediafire.com/file/sgatukmpztzojng/vehicles.zip/file ربع
