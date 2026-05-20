@@ -38,3 +38,7 @@ https://modsfire.com/2Ehroo4r3TLsn0c يارس
 https://modsfire.com/PC32gB5mhxeArXy كيا20
 https://www.mediafire.com/file/7aca0adaf0xwoq3/Almutairi_Land_LC70.zip/file شاص
 https://www.mediafire.com/file/sgatukmpztzojng/vehicles.zip/file ربع
+https://modsfire.com/KPkQ1si8u09AgpA باترول
+https://modsfire.com/74hAkRb84o5Aw9u جيتور
+https://modsfire.com/7ApJyoebBHKqRYo ماب 
+https://www.modland.net/download/387986 ماب 2
