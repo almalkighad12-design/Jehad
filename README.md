@@ -46,3 +46,5 @@ https://www.modland.net/beamng.drive-mods/cars/toyota-land-cruiser-70-where-reli
 https://www.modland.net/beamng.drive-mods/maps/johnson-valley-rework-2.html#:~:text=External%20Download%20Links:-,Modsfire,-.com%20%2D%20RonsonRemaster%2D007
 طرق وعره👆🏻
 https://www.modland.net/beamng.drive-mods/cars/toyota-land-cruiser-lc-2008-2016.html#:~:text=External%20Download%20Links:-,Modsfire.co,-m%20%2D%20Toyota%20Land ش شاص
+https://www.mediafire.com/file/8nuomok5sgfba62/Camry_2025_KHwylD.zip/file كامري25
+https://www.mediafire.com/file/3igtz4cs5uy0lzt/Altima_2017_KHwylD.zip/file التيما
