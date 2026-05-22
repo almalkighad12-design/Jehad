@@ -54,3 +54,4 @@ https://modsfire.com/9ZKYJqnFo3LTFoy لاند 97
 https://modsfire.com/x3JLly8VsME7q5j اسكاليد
 https://www.mediafire.com/file/atxbt46kws1cpxa/hrh_riyadh.zip/file ماب رياض
 https://www.mediafire.com/file/pakwskkdlmrinzq/rb3+2022edited+by+w6r3.zip/file ربع22
+https://modsfire.com/8K1srjH0FTt0ot7 ماب طرقات وعره
