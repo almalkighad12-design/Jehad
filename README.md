@@ -66,4 +66,6 @@ https://www.dropbox.com/scl/fi/rxvlyghefiiqjl80n2q8x/corolla12.zip?rlkey=tom2m55
 https://www.mediafire.com/file/rl5osbd004qj1md/LC_100_omashida.zip/file ربع
 https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1 ربع شغال
 https://www.modland.net/download/338094 هافال
-https://www.mediafire.com/file/sb8e4j6y5vep6hb/cadenza_2_K_.zip/file كادينزا
+https://www.mediafire.com/file/sb8e4j6y5vep6hb/cadenza_2_K_.zip/file كادينز
+https://modsfire.com/Eap2ziqWS9ifhUw سطحه
+https://modsfire.com/6tyR9hHLpMxZs0D سطحه2
