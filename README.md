@@ -1,5 +1,4 @@
 # Jehad
-https://modsfire.com/TBYD6WUl065cet4 لاند 200
 https://modsfire.com/1JtfY2ok22pTSre ددسن
 https://modsfire.com/PEAuQV59X07MMm3 جيب
 https://modsfire.com/jG2d2M6CYbDTs3G كامري22
@@ -69,3 +68,10 @@ https://www.modland.net/download/338094 هافال
 https://www.mediafire.com/file/sb8e4j6y5vep6hb/cadenza_2_K_.zip/file كادينز
 https://modsfire.com/Eap2ziqWS9ifhUw سطحه
 https://modsfire.com/6tyR9hHLpMxZs0D سطحه2
+https://www.modland.net/download/583660 سوناتا12
+https://www.modland.net/download/433705 كادنرا16
+
+https://www.modland.net/beamng.drive-mods/cars/kia-cadenza-2.html#:~:text=External%20Download%20Links:-,Modsbase,-.com%20%2D%20cadenza.zip كادنزا18
+https://www.modland.net/download/534959 كروز
+
+https://www.modland.net/download/565589 كروز17
