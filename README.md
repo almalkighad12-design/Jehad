@@ -76,6 +76,5 @@ https://www.modland.net/download/534959 كروز
 
 https://www.modland.net/download/565589 كروز17
 https://modsfire.com/O05a1e15E8pTxS1 اكورد4
-https://modsfire.com/55361O4P616oqN1 اكورد12
-https://www.mediafire.com/file/ad2ndi79nbtwp9w/77sonata.zip/file سوناتا 
-https://modsfire.com/u83vqeb0En82sCV ازيرا 18
+
+https://modsfire.com/64Bh2590566423w كوريلا
