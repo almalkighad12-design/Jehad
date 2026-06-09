@@ -80,3 +80,4 @@ https://modsfire.com/O05a1e15E8pTxS1 اكورد4
 
 https://modsfire.com/64Bh2590566423w كوريلا
 https://www.mediafire.com/file/6w5v49qskczxbz8/DXTR_Caprice_2012.zip/file كابرس
+https://www.modland.net/beamng.drive-mods/cars/toyota-camry-2013.html#:~:text=External%20Download%20Links:-,Modsfire,-.com%20%2D%20Camry11_By_Abdo_Husyan_V2.zip كامري 11
