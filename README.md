@@ -58,3 +58,5 @@ https://www.modland.net/beamng.drive-mods/cars/kia-cadenza-2.html#:~:text=Extern
 https://www.modland.net/download/565589 كروز17
 https://modsfire.com/O05a1e15E8pTxS1 اكورد4
 https://www.mediafire.com/file/6w5v49qskczxbz8/DXTR_Caprice_2012.zip/file كابرس
+النترا22
+https://www.mediafire.com/file/u3do855cdwznthc/Hyundai+Elantra+21+23.zip/file
