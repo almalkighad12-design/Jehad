@@ -59,14 +59,10 @@ https://www.modland.net/download/565589 كروز17
 https://modsfire.com/O05a1e15E8pTxS1 اكورد4
 https://www.mediafire.com/file/6w5v49qskczxbz8/DXTR_Caprice_2012.zip/file كابرس
 
-النترا22
-https://www.mediafire.com/file/u3do855cdwznthc/Hyundai+Elantra+21+23.zip/file
-
-اكسنت10
-
-https://modsfire.com/Wvr1fI9tm34v6kH
-
-
 اقلون
 
 https://discord.com/channels/1390777445686313202/1497380614645743817/1497380614645743817
+
+النترا15
+
+https://www.mediafire.com/file/7il2z40zj9ybcnk/Elantra_2015.zip/file 
