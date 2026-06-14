@@ -80,11 +80,8 @@ https://www.mediafire.com/file/6w5v49qskczxbz8/DXTR_Caprice_2012.zip/file كاب
 
 https://discord.com/channels/1390777445686313202/1497380614645743817/1497380614645743817
 
-كامري2007
-
-https://www.dropbox.com/scl/fi/qiip4io138r0jnp33cef8/Toyota_Camry_2007_By_Fna_modland.zip?rlkey=77u4267p2auwyi9vjwqqj1tly&dl=1
-
- النترا
 
 
-https://www.dropbox.com/scl/fi/ilwqc1xvzacg2mc2plx9e/Elantra_2015.zip?rlkey=ecwf5mujjcxd7kccomsw9912a&st=78kq8koq&dl=0
+لكزس
+ 
+https://www.dropbox.com/scl/fi/us5amfp13mxlj2v845hre/LX570_2017_KHwylD.zip?rlkey=y7ra9lafh5he3tl78bw3locxm&st=tuuf9z5d&dl=0
