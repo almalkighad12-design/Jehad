@@ -1,4 +1,8 @@
 # Jehad
+https://www.mediafire.com/file/kygrskmdwtzzoze/Elntera.zip/file
+
+
+
 https://www.dropbox.com/scl/fi/6xcd07opy746d99pr76lc/Elntera.zip?rlkey=ktlh6af1zpx0vqou25gyp63v8&st=iad6312v&dl=0
 
 ماب توكسك معدل 
