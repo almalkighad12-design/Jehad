@@ -1,6 +1,7 @@
 # Jehad
-https://www.mediafire.com/file/cgncjngvisoflnh/Elntera.zip/file
+https://www.dropbox.com/scl/fi/amzeivxf14arb74ooxs2d/Elantra_20151.zip?
 
+https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?
 
 
 
