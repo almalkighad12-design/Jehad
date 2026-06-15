@@ -1,19 +1,6 @@
 # Jehad
 
 
-https://www.mediafire.com/file/albnqxkqmet8ewa/Elantra_20151.zip/file
-
-https://www.dropbox.com/scl/fi/amzeivxf14arb74ooxs2d/Elantra_20151.zip?
-
-https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?
-
-
-
-https://www.mediafire.com/file/kygrskmdwtzzoze/Elntera.zip/file
-
-
-
-https://www.dropbox.com/scl/fi/6xcd07opy746d99pr76lc/Elntera.zip?rlkey=ktlh6af1zpx0vqou25gyp63v8&st=iad6312v&dl=0
 
 ماب توكسك معدل 
 
