@@ -1,7 +1,5 @@
 # Jehad
-انترا
-https://www.mediafire.com/file/hn5vtqh0bnz7h62/vehicle.zip/file
-
+https://www.dropbox.com/scl/fi/6xcd07opy746d99pr76lc/Elntera.zip?rlkey=ktlh6af1zpx0vqou25gyp63v8&st=iad6312v&dl=0
 
 ماب توكسك معدل 
 
